@@ -1,5 +1,5 @@
 # Leaked By HeyCrab3#1970
-
+![1661232057393.png](https://img1.imgtp.com/2022/08/23/TKzv2Rvb.png)
 # 雨露大主播
 抄袭配置6666666666
 ## 雨露干了什么
